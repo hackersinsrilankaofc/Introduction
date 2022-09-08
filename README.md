@@ -10,7 +10,8 @@
 𝚃𝙷𝙴 𝙱𝙴𝚂𝚃 𝚃𝙴𝙲𝙷𝙽𝙾𝙻𝙾𝙶𝚈 𝚃𝙴𝙰𝙼 𝙸𝙽 𝚂𝚁𝙸 𝙻𝙰𝙽𝙺𝙰.
 
 
-
+<img src="https://telegra.ph/file/3af3080786366ca8b66a3.jpg" alt="nz" width="350"/>
+</p>
 
 ⚪  Theme of 𝗛𝗜𝗦𝗟
 
